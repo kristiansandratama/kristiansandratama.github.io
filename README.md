@@ -1,1 +1,0 @@
-# kristiansandratama.github.io
